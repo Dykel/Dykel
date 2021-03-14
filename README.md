@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jonathan
+- 👋 Hi, I’m @Joseph Jonathan Collet
 - 👀 I’m interested in becoming the next Elon Musk of Mauritius.
 - 🌱 I’m currently learning to be innovative.
 - 💞️ I’m looking to collaborate in the economic development of Rodrigues Island.
