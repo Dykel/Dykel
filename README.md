@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Joseph Jonathan Collet
 - 👀 I’m interested in becoming the next Elon Musk of Mauritius.
-- 🌱 I’m currently learning to be innovative.
+- 🌱 I’m currently learning The secret to innovation.
 - 💞️ I’m looking to collaborate in the economic development of Rodrigues Island.
 - 📫 How to reach me https://www.linkedin.com/in/dykelaway/.
 
